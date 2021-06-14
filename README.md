@@ -1,4 +1,4 @@
-SALEM 👋
+Hi 👋
 
 My name is Yelzhan, 
 
